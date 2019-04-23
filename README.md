@@ -6,5 +6,6 @@ teams for innovation report project
 * quality control
 * editorial and strategic communication
 * industry analysis
+* documentation 
 
 
