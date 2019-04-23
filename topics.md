@@ -7,7 +7,7 @@ Each person will select 1 topic to explore during the term. You may choose from 
 3.	Small presses, such as Graywolf Press
 4.	Self-publishing
 5.	Literary agents
-6.	Author platforms [further explanation of an author platform](https://www.janefriedman.com/author-platform-definition/)
+6.	Author platforms, see [further explanation of an author platform](https://www.janefriedman.com/author-platform-definition/)
 7.	Production and distribution of print books
 8.	Print-on-demand
 9.	Ebooks
