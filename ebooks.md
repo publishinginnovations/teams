@@ -207,6 +207,8 @@ Coleman
 
 **eBook 12 - womanhood/subjugation of women**
 
+Rich
+
 -   “Home Economics” by Kathryn Stripling Byer
 
 [*https://shenandoahliterary.org/631/2013/04/18/home-economics/*](https://shenandoahliterary.org/631/2013/04/18/home-economics/)
