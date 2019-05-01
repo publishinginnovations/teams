@@ -187,6 +187,8 @@ Emily
 
 **eBook 11 - relationship dissection**
 
+Coleman
+
 -   “Rebecca” by Laurie Frankel
 
 > [*https://shenandoahliterary.org/612/rebecca/*](https://shenandoahliterary.org/612/rebecca/)
