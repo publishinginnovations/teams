@@ -152,6 +152,8 @@ Emily
 
 **eBook 9 - nature imagery**
 
+Zander
+
 -   “Pruning the Back Boundary” by Thomas Reiter
 
 [*https://shenandoahliterary.org/612/pruning-the-back-boundary/*](https://shenandoahliterary.org/612/pruning-the-back-boundary/)
@@ -172,6 +174,10 @@ Emily
 > [*https://shenandoahliterary.org/651/2015/07/21/seven-white-butterflies/*](https://shenandoahliterary.org/651/2015/07/21/seven-white-butterflies/)
 
 **eBook 10 - introspective travelling**
+
+Curtis
+
+
 
 -   “Hike to the Black Madonna” by Christie Stewart-Nunez
 
@@ -241,6 +247,8 @@ Rich
 
 **eBook 14 - war**
 
+Carter
+
 -   “Jigsaw” by Seth Brady Tucker
 
 [*https://shenandoahliterary.org/631/2013/09/30/jigsaw/*](https://shenandoahliterary.org/631/2013/09/30/jigsaw/)
@@ -273,6 +281,8 @@ Rich
 
 **eBook 16 - fantasy/magic/supernatural**
 
+Brendan
+
 -   “The Minister’s Wife Seeks Patrick McKommie’s Advice” by Judith
     > McCombs
 
@@ -287,6 +297,8 @@ Rich
 [*https://shenandoahliterary.org/662/2017/03/22/hematite-apatite/*](https://shenandoahliterary.org/662/2017/03/22/hematite-apatite/)
 
 **eBook 17 - race**
+
+Evans
 
 -   “Pickett’s History of Alabama” by Austin Segrest
 
