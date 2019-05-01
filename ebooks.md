@@ -22,7 +22,7 @@ Jesse
 
 [*https://shenandoahliterary.org/661/2016/11/03/memento-mori/*](https://shenandoahliterary.org/661/2016/11/03/memento-mori/)
 
-**eBook 2- husband/boyfriend leaving **
+**eBook 2- husband/boyfriend leaving**
 
 
 Barrett
