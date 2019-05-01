@@ -61,6 +61,10 @@ Christian
 
 **eBook 4 - poetic commentaries on humanity**
 
+
+Hal
+
+
 -   “The Humans” by Melissa Dickson
 
 [*https://shenandoahliterary.org/622/the-humans/*](https://shenandoahliterary.org/622/the-humans/)
@@ -74,6 +78,8 @@ Christian
 [*https://shenandoahliterary.org/622/remedy-for-pessimism/*](https://shenandoahliterary.org/622/remedy-for-pessimism/)
 
 **eBook 5 - Michelle Boisseau poetry**
+
+Emma
 
 -   “Weak Force” by Michelle Boisseau
 
@@ -93,6 +99,8 @@ Christian
 [*https://shenandoahliterary.org/blog/2016/06/the-mountains-and-the-swamp-an-interview-with-poet-michelle-boisseau/*](https://shenandoahliterary.org/blog/2016/06/the-mountains-and-the-swamp-an-interview-with-poet-michelle-boisseau/)
 
 **eBook 6 - Musings about writers/writing**
+
+
 
 -   “Charlotte Mew: The Art of the Mask” by Lisa Taddeo
 
@@ -127,6 +135,8 @@ Christian
 
 **eBook 8 - reflecting on childhood, specifically relationship w/
 parents**
+
+Emily
 
 -   “Wings, 1989” by Robin MacArthur
 
