@@ -24,6 +24,7 @@ Jesse
 
 **eBook 2- husband/boyfriend leaving **
 
+
 Barrett
 
 -   “Paradise”
@@ -43,6 +44,8 @@ Barrett
 > [*https://shenandoahliterary.org/61/to-will-one-thing/*](https://shenandoahliterary.org/61/to-will-one-thing/)
 
 **eBook 3- life changes**
+
+Christian
 
 -   “The Pig Farmer’s Burden” by Darren Guest
 
