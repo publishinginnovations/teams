@@ -100,7 +100,7 @@ Emma
 
 **eBook 6 - Musings about writers/writing**
 
-
+Dayton
 
 -   “Charlotte Mew: The Art of the Mask” by Lisa Taddeo
 
@@ -115,6 +115,8 @@ Emma
 [*https://shenandoahliterary.org/652/2016/03/15/beat-it-like-it-owes-you-money-wm-dunlap/*](https://shenandoahliterary.org/652/2016/03/15/beat-it-like-it-owes-you-money-wm-dunlap/)
 
 **Ebook 7- Writers/writing**
+
+McLean
 
 -   “Bartleby the Scrivener Occupies Wall Street” by Roberta Bienvenu
 
@@ -233,6 +235,8 @@ Rich
 
 **eBook 13 - mysterious or premature death**
 
+Will
+
 -   “Puck Fest” by Joe Giordano
 
 [*https://shenandoahliterary.org/652/2016/03/15/puck-fest-j-giordano/*](https://shenandoahliterary.org/652/2016/03/15/puck-fest-j-giordano/)
@@ -262,6 +266,8 @@ Carter
 > [*https://shenandoahliterary.org/621/translator/*](https://shenandoahliterary.org/621/translator/)
 
 **eBook 15 - lost kids**
+
+Rob
 
 -   “Deep-Water Drift” by Daniel Reiter
 
@@ -317,6 +323,8 @@ Evans
 [*https://shenandoahliterary.org/621/the-new-moon-economy/*](https://shenandoahliterary.org/621/the-new-moon-economy/)
 
 **eBook 18 - generational disconnect**
+
+Jon
 
 -   “I Would That I Were” by John Lee Clark
 
